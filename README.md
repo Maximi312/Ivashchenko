@@ -1,2 +1,0 @@
-# Ivashchenko
-Проба пера
